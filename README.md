@@ -1,40 +1,21 @@
 
-**RACLETTEABEND der Regio Jugendfeuerwehr Lenzburg**
+#RACLETTEABEND 2019 der Regio Jugendfeuerwehr Lenzburg
 
 ![Flyer Racletteabend](2019_Flyer_Racletteabend_inkl_Zuschnitt_2.jpg)
 
-<iframe src="https://www.google.com/maps/embed?pb=!1m14!1m8!1m3!1d337.6296118851088!2d8.1839896!3d47.391713!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x479016754a25cd7f%3A0xc449652c79663849!2sMehrzweckhalle%20Lenzburg!5e0!3m2!1sde!2sch!4v1568374707819!5m2!1sde!2sch" width="600" height="450" frameborder="0" style="border:0;" allowfullscreen=""></iframe>
+[EVENT auf Facebook](https://www.facebook.com/events/337517887088637/)
 
+##Anfahrtsplan zum Racletteabend
+
+<iframe src="https://www.google.com/maps/embed?pb=!1m14!1m8!1m3!1d337.6296118851088!2d8.1839896!3d47.391713!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x479016754a25cd7f%3A0xc449652c79663849!2sMehrzweckhalle%20Lenzburg!5e0!3m2!1sde!2sch!4v1568374707819!5m2!1sde!2sch" width="650" height="500" frameborder="0" style="border:0;" allowfullscreen=""></iframe>
+
+##Was ist die Regio Jugendfeurwehr Lenzburg?
 
 ![Allgemeiner Flyer](Vorlage_AllgemeinerFlyer_2.jpg)
 
-
-[LODUR Junior](https://rjfwl.ch)
-
+Wenn Feuer löschen, Feuerwehr-Gerätschaften bedienen, Erste Hilfe leisten und im Verkehrsdienst mithelfen dein Ding ist und du zwischen 10 und 18 Jahre alt bist, dann bist du bei uns genau richtig. Alle diese Themen werden bei uns im Übungsdienst bearbeitet. Dabei kommt auch das Gesellige und das Arbeiten im Team nie zu kurz. Wir freuen uns auf neue Gesichter.
 
 
-### Markdown ab hier beispieltext
+###Unser Jahresprogramm und Organigramm findest du im [LODUR Junior](https://rjfwl.ch)
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/)
+###Folge uns auf [Instagram](https://www.instagram.com/regiojugendfeuerwehrlenzburg/) und [Facebook](https://www.facebook.com/RJFWL/)

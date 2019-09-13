@@ -2,7 +2,7 @@
 
 Klicke auch "Teilnehmen" bei unserem [EVENT auf Facebook](https://www.facebook.com/events/337517887088637/)
 
-Folge uns auf ![Instagram Logo](insta_icon.png)[Instagram](https://www.instagram.com/regiojugendfeuerwehrlenzburg/) und ![Facebook Logo](facebook_icon.png)[Facebook](https://www.facebook.com/RJFWL/)
+Folge uns auf [![Instagram Logo](insta_icon.png) Instagram](https://www.instagram.com/regiojugendfeuerwehrlenzburg/) und [![Facebook Logo](facebook_icon.png) Facebook](https://www.facebook.com/RJFWL/)
 
 <br>
 
@@ -24,4 +24,4 @@ Wenn Feuer löschen, Feuerwehr-Gerätschaften bedienen, Erste Hilfe leisten und 
 
 <br>
 
-Folge uns auf ![Instagram Logo](insta_icon.png)[Instagram](https://www.instagram.com/regiojugendfeuerwehrlenzburg/) und ![Facebook Logo](facebook_icon.png)[Facebook](https://www.facebook.com/RJFWL/)
+Folge uns auf [![Instagram Logo](insta_icon.png) Instagram](https://www.instagram.com/regiojugendfeuerwehrlenzburg/) und [![Facebook Logo](facebook_icon.png) Facebook](https://www.facebook.com/RJFWL/)

@@ -2,7 +2,7 @@ Klicke auf "Teilnehmen" bei unserem [EVENT auf ![Facebook Logo](facebook_icon.pn
 
 ![Flyer Racletteabend](2019_Flyer_Racletteabend_inkl_Zuschnitt_2.jpg)
 
-Klicke auf "Teilnehmen" bei unserem [EVENT auf Facebook](https://www.facebook.com/events/337517887088637/)
+Klicke auf "Teilnehmen" bei unserem [EVENT auf ![Facebook Logo](facebook_icon.png) Facebook](https://www.facebook.com/events/337517887088637/)
 
 Folge uns auf [![Instagram Logo](insta_icon.png) Instagram](https://www.instagram.com/regiojugendfeuerwehrlenzburg/) und [![Facebook Logo](facebook_icon.png) Facebook](https://www.facebook.com/RJFWL/)
 

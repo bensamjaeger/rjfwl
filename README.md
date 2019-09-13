@@ -1,8 +1,8 @@
-Klicke auch "Teilnehmen" bei unserem [EVENT auf Facebook](https://www.facebook.com/events/337517887088637/)
+Klicke auf "Teilnehmen" bei unserem [EVENT auf [![Facebook Logo](facebook_icon.png) Facebook](https://www.facebook.com/events/337517887088637/)
 
 ![Flyer Racletteabend](2019_Flyer_Racletteabend_inkl_Zuschnitt_2.jpg)
 
-Klicke auch "Teilnehmen" bei unserem [EVENT auf Facebook](https://www.facebook.com/events/337517887088637/)
+Klicke auf "Teilnehmen" bei unserem [EVENT auf Facebook](https://www.facebook.com/events/337517887088637/)
 
 Folge uns auf [![Instagram Logo](insta_icon.png) Instagram](https://www.instagram.com/regiojugendfeuerwehrlenzburg/) und [![Facebook Logo](facebook_icon.png) Facebook](https://www.facebook.com/RJFWL/)
 
@@ -14,16 +14,16 @@ Folge uns auf [![Instagram Logo](insta_icon.png) Instagram](https://www.instagra
 
 <br>
 
-## Was ist die Regio Jugendfeurwehr Lenzburg?
+## Mehr zur Regio Jugendfeurwehr Lenzburg
 
 ![Allgemeiner Flyer](Vorlage_AllgemeinerFlyer_2.jpg)
 
 Wenn Feuer löschen, Feuerwehr-Gerätschaften bedienen, Erste Hilfe leisten und im Verkehrsdienst mithelfen dein Ding ist und du zwischen 10 und 18 Jahre alt bist, dann bist du bei uns genau richtig. Alle diese Themen werden bei uns im Übungsdienst bearbeitet. Dabei kommt auch das Gesellige und das Arbeiten im Team nie zu kurz. Wir freuen uns auf neue Gesichter.
 
-Melde dich bei uns per E-Mail an <hallo@rjfwl.ch>
+Lust dabei zu sein? Melde dich bei uns per E-Mail an <hallo@rjfwl.ch>
 <br>
 
-[Unser Jahresprogramm und Organigramm findest du im ![LODUR Logo](lodur_icon.png)](https://www.rjfwl.ch)
+[Unser Jahresprogramm findest du im ![LODUR Logo](lodur_icon.png)](https://www.rjfwl.ch)
 
 <br>
 

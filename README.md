@@ -21,6 +21,7 @@ Folge uns auf [![Instagram Logo](insta_icon.png) Instagram](https://www.instagra
 Wenn Feuer löschen, Feuerwehr-Gerätschaften bedienen, Erste Hilfe leisten und im Verkehrsdienst mithelfen dein Ding ist und du zwischen 10 und 18 Jahre alt bist, dann bist du bei uns genau richtig. Alle diese Themen werden bei uns im Übungsdienst bearbeitet. Dabei kommt auch das Gesellige und das Arbeiten im Team nie zu kurz. Wir freuen uns auf neue Gesichter.
 
 Lust dabei zu sein? Melde dich bei uns per E-Mail an <hallo@rjfwl.ch>
+
 <br>
 
 [Unser Jahresprogramm findest du im ![LODUR Logo](lodur_icon.png)](https://www.rjfwl.ch)

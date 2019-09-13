@@ -1,4 +1,4 @@
-# RACLETTEABEND der REGIO JUGENDFEUERWEHR LENZBURG 2019
+
 
 ![Flyer Racletteabend](2019_Flyer_Racletteabend_inkl_Zuschnitt_2.jpg)
 

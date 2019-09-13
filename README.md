@@ -1,6 +1,3 @@
-
-## RACLETTEABEND 2019 der Regio Jugendfeuerwehr Lenzburg
-
 ![Flyer Racletteabend](2019_Flyer_Racletteabend_inkl_Zuschnitt_2.jpg)
 
 Klicke auch "Teilnehmen" bei unserem [EVENT auf Facebook](https://www.facebook.com/events/337517887088637/)

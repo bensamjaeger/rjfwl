@@ -20,7 +20,7 @@ Wenn Feuer löschen, Feuerwehr-Gerätschaften bedienen, Erste Hilfe leisten und 
 
 <br>
 
-### Unser Jahresprogramm und Organigramm findest du im [![LODUR Logo](lodur_icon.png)](https://rjfwl.ch)
+### Unser Jahresprogramm und Organigramm findest du im [![LODUR Logo](lodur_icon.png)](https://www.rjfwl.ch)
 
 <br>
 

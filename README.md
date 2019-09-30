@@ -8,8 +8,8 @@ Klicke auf "Teilnehmen" bei unserem [EVENT auf ![Facebook Logo](facebook_icon.pn
 - Helfen Sie dem Verein sich zu Finanzieren
 - Jugendarbeit ist wichtig
 - Wir sind Jung und brauchen das Geld!
-- hier
-- noch
+- Fördern Sie die nachhaltige Jugendarbeit = Vorbereitung auf einen wertvollen Dienst an der Bevölkerung in Notlagen
+- Wir haben eine Tombola
 - mehr
 - Bullet-
 - Points
@@ -28,7 +28,7 @@ Klicke auf "Teilnehmen" bei unserem [EVENT auf ![Facebook Logo](facebook_icon.pn
 
 <iframe src="https://www.google.com/maps/embed?pb=!1m14!1m8!1m3!1d337.6296118851088!2d8.1839896!3d47.391713!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x479016754a25cd7f%3A0xc449652c79663849!2sMehrzweckhalle%20Lenzburg!5e0!3m2!1sde!2sch!4v1568374707819!5m2!1sde!2sch" width="100%" height="450" frameborder="0" style="border:0;" allowfullscreen=""></iframe>
 
-![Flyer Racletteabend](2019_Flyer_Racletteabend_4.jpg)
+![Flyer Racletteabend](2019_Flyer_Racletteabend_5.jpg)
 
 Klicke auf "Teilnehmen" bei unserem [EVENT auf ![Facebook Logo](facebook_icon.png) Facebook](https://www.facebook.com/events/337517887088637/)
 

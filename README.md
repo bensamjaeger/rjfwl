@@ -4,6 +4,12 @@ Klicke auf "Teilnehmen" bei unserem [EVENT auf ![Facebook Logo](facebook_icon.pn
 
 <br>
 
+Die Regio Jugendfeuerwehr Lenzburg lädt zum diesjährigen Racletteabend in der Mehrzweckhalle Schützenmatte ein. 
+Wir schmelzen für erstklassigen Käse, guten Wein und eine gesellige Atmosphäre. 
+Die Angehörigen der Jugendfeuerwehr freuen sich darauf Sie zu bedienen.
+
+<br>
+
 - Unterstützen Sie die nächste Generation der Feuerwehrleute
 - Helfen Sie dem Verein sich zu Finanzieren
 - Jugendarbeit ist wichtig
@@ -13,16 +19,6 @@ Klicke auf "Teilnehmen" bei unserem [EVENT auf ![Facebook Logo](facebook_icon.pn
 - Guido ist auch da
 - Führwehrkafi esch fein ond macht psoffe!
 - Massloses überfressen vorprogrammiert.
-- hier
-- noch
-- mehr
-- Bullet-
-- Points
-- hier
-- noch
-- mehr
-- Bullet-
-- Points
 
 
 ## Anfahrtsplan zum Racletteabend

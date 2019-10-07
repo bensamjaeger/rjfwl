@@ -10,15 +10,17 @@ Die Angehörigen der Jugendfeuerwehr freuen sich darauf Sie zu bedienen.
 
 <br>
 
-- Unterstützen Sie die nächste Generation der Feuerwehrleute
-- Helfen Sie dem Verein sich zu Finanzieren
-- Jugendarbeit ist wichtig
-- Wir sind Jung und brauchen das Geld!
+- Gemütliche Atmosphäre für die ganze Familie am Racletteabend der Jugendfeuerwehr
+
+- Alle sind Willkommen!
+
 - Fördern Sie die nachhaltige Jugendarbeit = Vorbereitung auf einen wertvollen Dienst an der Bevölkerung in Notlagen
-- Wir haben eine Tombola
-- Guido ist auch da
-- Führwehrkafi esch fein ond macht psoffe!
-- Massloses überfressen vorprogrammiert.
+
+- Unterstützen Sie Finanzierung der nachhaltigen Jugendarbeit - der Gewinn des Racletteabends fliesst vollumfänglich in den Verein Regio Jugendfeuerwehr Lenzburg, welcher für nachhaltige Jugendarbeit im Bereich Feuerwehr steht.
+
+- Tombola mit Preisen aus der Region
+
+
 
 
 ## Anfahrtsplan zum Racletteabend

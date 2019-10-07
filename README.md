@@ -38,6 +38,7 @@ Klicke auf "Teilnehmen" bei unserem [EVENT auf ![Facebook Logo](facebook_icon.pn
 Folge uns auf [![Instagram Logo](insta_icon.png) Instagram](https://www.instagram.com/regiojugendfeuerwehrlenzburg/) und [![Facebook Logo](facebook_icon.png) Facebook](https://www.facebook.com/RJFWL/)
 
 <br>
+----------------------------------------------------------------------------------------------------------------------------
 <br>
 
 ## Mehr zur Regio Jugendfeurwehr Lenzburg

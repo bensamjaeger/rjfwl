@@ -12,6 +12,8 @@ Die Angehörigen der Jugendfeuerwehr freuen sich darauf Sie zu bedienen.
 
 - Gemütliche Atmosphäre für die ganze Familie am Racletteabend der Jugendfeuerwehr
 
+- Geniessen Sie Raclette ohne den Geschmack in der Wohnung und den Abwasch danach
+
 - Alle sind Willkommen!
 
 - Fördern Sie die nachhaltige Jugendarbeit = Vorbereitung auf einen wertvollen Dienst an der Bevölkerung in Notlagen
